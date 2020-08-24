@@ -1,0 +1,1 @@
+# How-to-Talk-Model-of-Stock-Market-Prices-
